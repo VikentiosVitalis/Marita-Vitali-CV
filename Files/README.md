@@ -1,3 +1,2 @@
 # Marita-Vitali
  Personal CV
- 
